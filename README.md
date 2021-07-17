@@ -1,1 +1,0 @@
-https://a-alisher.github.io/rsschool-cv/cv
