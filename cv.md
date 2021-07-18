@@ -2,6 +2,7 @@
 ***
 # Alisher Alimkanov <br /> 
 Bishkek city. Kyrgyz Republic
+![Pic](https://drive.google.com/file/d/10A5ZyGiSa7gMtrJiffRcNuakUXfJoJJS/view?usp=sharing)
 ***
 ## Contact info
 - email: alimkanov.alisher@gmail.com
