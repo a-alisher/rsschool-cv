@@ -8,6 +8,7 @@ Bishkek city. Kyrgyz Republic
 - email: alimkanov.alisher@gmail.com
 - mobile number: +996 (557) 474579
 - skype: alisher.karahan
+- telegram: @AlisherAlimkanov
 ***
 ## Education
 - **2015 nov** <br />          Kyrgyz-Japan Center of Human Development	Social Media Marketing Course (SMM)
