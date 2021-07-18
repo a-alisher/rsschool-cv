@@ -38,7 +38,7 @@ Brigadier of internet group
 - **2009-2017**	<br /> Growth from electrician of linear cable structures to the head of corporate sales sector at Kyrgyztelecom OJSC
 ***
 ## Skills
-- **Languages:** <br />	Kyrgyz - native; Russian fluently; English- with dictionary. Японский – with dictionary
+- **Languages:** <br />	Kyrgyz - native; Russian fluently; English- with dictionary. Japanese – with dictionary
 - **Computer skills:** <br />	Microsoft Office, Internet, Windows Server 2003.
 - **Personal qualities:** <br />	Interpersonal skills, Purposefulness, Ambitiousness, Tolerance, Ability to learn quickly
 
